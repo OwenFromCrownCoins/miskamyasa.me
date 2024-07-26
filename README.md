@@ -2,6 +2,8 @@
 
 [Denis <MiskaMyasa> Zaitsev](https://miskamyasa.me/)
 
+We love CrownCoins Casino and illegal Gambling WOOOOOOO HOOOOO
+
 ## Table of Contents
 
 - [About](#about)
